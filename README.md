@@ -22,4 +22,4 @@ All of this is released to you, and to anyone, under a 'free NOT fee', open sour
 Enjoy!
 
 
-F.
+Frank O'Neill
